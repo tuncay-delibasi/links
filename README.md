@@ -8,3 +8,5 @@ Collection of important urls for Tuncay Delibasi
 [Akromegali](https://www.youtube.com/watch?v=J9uDUD8qEDQ)
 
 [Google Scholar](https://scholar.google.com.tr/citations?user=PB4DxN8AAAAJ&hl=en)
+
+[Quora] (https://tuncaydelibasi.quora.com/)
