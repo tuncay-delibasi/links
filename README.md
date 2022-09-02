@@ -9,4 +9,4 @@ Collection of important urls for Tuncay Delibasi
 
 [Google Scholar](https://scholar.google.com.tr/citations?user=PB4DxN8AAAAJ&hl=en)
 
-[Quora] (https://tuncaydelibasi.quora.com/)
+[Quora](https://tuncaydelibasi.quora.com/)
